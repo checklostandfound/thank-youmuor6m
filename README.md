@@ -1,1 +1,0 @@
-# thank-youmuor6m
